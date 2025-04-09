@@ -9,4 +9,4 @@
 ![image](https://github.com/AER199/-bot/assets/132701075/318f6cde-af95-4480-bad9-5769ac778200)
 
 
-部署搭建请联系客服TG:https://t.me/AER00001 或 https://t.me/AER00001
+部署搭建请联系客服TG:https://t.me/AER_TGID 或 https://t.me/AERTG_ID
